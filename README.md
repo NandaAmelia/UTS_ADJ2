@@ -1,6 +1,6 @@
 - Nama : Nanda Amelia
 - Nim  : 191402015
--
+
 THE NAT CODE
 
 - link youtube: https://youtu.be/V-l4xm8VOcE
